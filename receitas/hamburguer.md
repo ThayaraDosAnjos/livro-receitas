@@ -34,7 +34,7 @@
 
 
 
-_Essa receita pode varias de acordo com seu gosto, podendo acrescentar tanto farinha de rosca no hambúrguer, para deixar mais fácil na hora de assar ou até mesmo substituir o queijo por pasta de amendoim que fica ótimo. Espero que tenham gostado e até a próxima._:happy:
+_Essa receita pode varias de acordo com seu gosto, podendo acrescentar tanto farinha de rosca no hambúrguer, para deixar mais fácil na hora de assar ou até mesmo substituir o queijo por pasta de amendoim que fica ótimo. Espero que tenham gostado e até a próxima_ .
 
 
 
