@@ -40,9 +40,7 @@
 
 
 
-**_Espero que tenham gostado, é uma receita simples e prática para fazer em casa, em breve estaremos de volta._**:happy:
-
-
+**_Espero que tenham gostado, é uma receita simples e prática para fazer em casa, em breve estaremos de volta._**
 
 
 
