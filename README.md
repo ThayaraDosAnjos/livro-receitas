@@ -2,10 +2,10 @@
 
 
 
-Olá ! Seja Bem Vindo ao meu livro de receitas:wave:
-
+Olá ! Seja Bem Vindo ao meu livro de receitas.:wave:
 - Hambúrguer Fit 
 - Beijinho Fit 
 
 
 
+  
